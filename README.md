@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Praisey-Shalomi
-- 👀 I’m interested in lwarning new stuff bascially i am professional engineer apart from that i am blogger, youtuber, artist
+- 👀 I’m interested in learning new stuff bascially i am professional engineer apart from that i am blogger, youtuber, artist
 - 🌱 I’m currently learning on marketing and business
 
 <!---
